@@ -3,4 +3,4 @@
 祝你生活愉快
 (*^__^*)
 
-[![Click to Memos](https://get-bing-image.api.itedev.com)](https://memos.itedev.com/)
+[Click to Memos](https://memos.itedev.com/)
