@@ -1,6 +1,6 @@
-博主为高中生, 非单.
+High school student, close with someone special.
+Wish you a happy life!
 
-祝你生活愉快
-(*^__^*)
+(^__^)
 
 [Click to Memos](https://memos.itedev.com/)
