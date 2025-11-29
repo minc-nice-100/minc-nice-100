@@ -1,9 +1,6 @@
-High school student, close with someone special.
-
-From student livestock at Xinhui No.1 to wage slaves in the wild — the circle of life.
-
-Wish you a happy life!
-
-(^__^)
+High school student.
+Has severe depression — in a second relapse and still dealing with it.
+Good luck, as long as you're happy, that’s what matters.
 
 [Click to Memos](https://memos.itedev.com/)
+
